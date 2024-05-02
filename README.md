@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @scarllexx
+- 👀 I'm interested in everything related to computers, cars and money 
+- 🌱 I'm currently learning Python, but so far I'm not doing well(
+- 💞 ️ I'm looking to collaborate on with everyone)
+- 📫 - How to reach me: tg - @TURINAB0LIK
